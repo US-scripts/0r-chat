@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/6aee765f-75f9-4297-87ab-f0ccb720888c)
+
 ## 0R-Chat-V3 | 0Resmon | aliko.
 
 First of all, thank you for your purchase.
